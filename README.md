@@ -1,3 +1,3 @@
 # Learning stuff
 
-One messy repo.
+Bruh, this one messy repo.
